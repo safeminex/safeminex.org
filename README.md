@@ -1,1 +1,1 @@
-# safeminex.org
+# safeminex.site
